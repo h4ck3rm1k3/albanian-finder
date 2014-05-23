@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Colorado)
 * [Simaku](https://www.whitepages.com/name/Simaku/Colorado)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Colorado)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Colorado)
 * [Sopa](https://www.whitepages.com/name/Sopa/Colorado)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Colorado)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Colorado)

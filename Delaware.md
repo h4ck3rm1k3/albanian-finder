@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Delaware)
 * [Simaku](https://www.whitepages.com/name/Simaku/Delaware)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Delaware)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Delaware)
 * [Sopa](https://www.whitepages.com/name/Sopa/Delaware)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Delaware)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Delaware)

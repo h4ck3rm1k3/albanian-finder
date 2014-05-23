@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Nebraska)
 * [Simaku](https://www.whitepages.com/name/Simaku/Nebraska)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Nebraska)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Nebraska)
 * [Sopa](https://www.whitepages.com/name/Sopa/Nebraska)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Nebraska)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Nebraska)

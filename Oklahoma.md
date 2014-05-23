@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Oklahoma)
 * [Simaku](https://www.whitepages.com/name/Simaku/Oklahoma)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Oklahoma)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Oklahoma)
 * [Sopa](https://www.whitepages.com/name/Sopa/Oklahoma)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Oklahoma)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Oklahoma)

@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Michigan)
 * [Simaku](https://www.whitepages.com/name/Simaku/Michigan)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Michigan)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Michigan)
 * [Sopa](https://www.whitepages.com/name/Sopa/Michigan)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Michigan)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Michigan)

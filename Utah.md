@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Utah)
 * [Simaku](https://www.whitepages.com/name/Simaku/Utah)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Utah)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Utah)
 * [Sopa](https://www.whitepages.com/name/Sopa/Utah)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Utah)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Utah)

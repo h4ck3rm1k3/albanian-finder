@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Hawaii)
 * [Simaku](https://www.whitepages.com/name/Simaku/Hawaii)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Hawaii)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Hawaii)
 * [Sopa](https://www.whitepages.com/name/Sopa/Hawaii)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Hawaii)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Hawaii)

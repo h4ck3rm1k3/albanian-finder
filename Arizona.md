@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Arizona)
 * [Simaku](https://www.whitepages.com/name/Simaku/Arizona)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Arizona)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Arizona)
 * [Sopa](https://www.whitepages.com/name/Sopa/Arizona)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Arizona)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Arizona)

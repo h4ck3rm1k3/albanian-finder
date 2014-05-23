@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Alabama)
 * [Simaku](https://www.whitepages.com/name/Simaku/Alabama)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Alabama)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Alabama)
 * [Sopa](https://www.whitepages.com/name/Sopa/Alabama)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Alabama)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Alabama)

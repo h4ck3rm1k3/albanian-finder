@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Oregon)
 * [Simaku](https://www.whitepages.com/name/Simaku/Oregon)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Oregon)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Oregon)
 * [Sopa](https://www.whitepages.com/name/Sopa/Oregon)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Oregon)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Oregon)

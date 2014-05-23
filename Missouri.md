@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Missouri)
 * [Simaku](https://www.whitepages.com/name/Simaku/Missouri)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Missouri)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Missouri)
 * [Sopa](https://www.whitepages.com/name/Sopa/Missouri)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Missouri)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Missouri)

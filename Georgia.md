@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Georgia)
 * [Simaku](https://www.whitepages.com/name/Simaku/Georgia)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Georgia)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Georgia)
 * [Sopa](https://www.whitepages.com/name/Sopa/Georgia)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Georgia)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Georgia)

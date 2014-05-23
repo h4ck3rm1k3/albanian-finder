@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/California)
 * [Simaku](https://www.whitepages.com/name/Simaku/California)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/California)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/California)
 * [Sopa](https://www.whitepages.com/name/Sopa/California)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/California)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/California)

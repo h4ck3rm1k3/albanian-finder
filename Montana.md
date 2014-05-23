@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Montana)
 * [Simaku](https://www.whitepages.com/name/Simaku/Montana)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Montana)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Montana)
 * [Sopa](https://www.whitepages.com/name/Sopa/Montana)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Montana)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Montana)

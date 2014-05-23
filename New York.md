@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/New-York)
 * [Simaku](https://www.whitepages.com/name/Simaku/New-York)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/New-York)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/New-York)
 * [Sopa](https://www.whitepages.com/name/Sopa/New-York)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/New-York)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/New-York)

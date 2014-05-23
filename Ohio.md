@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Ohio)
 * [Simaku](https://www.whitepages.com/name/Simaku/Ohio)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Ohio)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Ohio)
 * [Sopa](https://www.whitepages.com/name/Sopa/Ohio)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Ohio)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Ohio)

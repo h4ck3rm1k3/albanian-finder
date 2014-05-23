@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/North-Carolina)
 * [Simaku](https://www.whitepages.com/name/Simaku/North-Carolina)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/North-Carolina)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/North-Carolina)
 * [Sopa](https://www.whitepages.com/name/Sopa/North-Carolina)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/North-Carolina)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/North-Carolina)

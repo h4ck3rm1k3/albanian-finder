@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/West-Virginia)
 * [Simaku](https://www.whitepages.com/name/Simaku/West-Virginia)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/West-Virginia)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/West-Virginia)
 * [Sopa](https://www.whitepages.com/name/Sopa/West-Virginia)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/West-Virginia)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/West-Virginia)

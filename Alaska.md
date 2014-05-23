@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Alaska)
 * [Simaku](https://www.whitepages.com/name/Simaku/Alaska)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Alaska)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Alaska)
 * [Sopa](https://www.whitepages.com/name/Sopa/Alaska)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Alaska)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Alaska)

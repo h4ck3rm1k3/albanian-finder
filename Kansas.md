@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Kansas)
 * [Simaku](https://www.whitepages.com/name/Simaku/Kansas)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Kansas)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Kansas)
 * [Sopa](https://www.whitepages.com/name/Sopa/Kansas)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Kansas)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Kansas)

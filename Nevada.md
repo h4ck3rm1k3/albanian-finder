@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Nevada)
 * [Simaku](https://www.whitepages.com/name/Simaku/Nevada)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Nevada)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Nevada)
 * [Sopa](https://www.whitepages.com/name/Sopa/Nevada)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Nevada)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Nevada)

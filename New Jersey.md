@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/New-Jersey)
 * [Simaku](https://www.whitepages.com/name/Simaku/New-Jersey)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/New-Jersey)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/New-Jersey)
 * [Sopa](https://www.whitepages.com/name/Sopa/New-Jersey)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/New-Jersey)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/New-Jersey)

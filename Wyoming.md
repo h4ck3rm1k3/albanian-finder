@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Wyoming)
 * [Simaku](https://www.whitepages.com/name/Simaku/Wyoming)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Wyoming)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Wyoming)
 * [Sopa](https://www.whitepages.com/name/Sopa/Wyoming)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Wyoming)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Wyoming)

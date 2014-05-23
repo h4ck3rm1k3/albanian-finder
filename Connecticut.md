@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Connecticut)
 * [Simaku](https://www.whitepages.com/name/Simaku/Connecticut)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Connecticut)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Connecticut)
 * [Sopa](https://www.whitepages.com/name/Sopa/Connecticut)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Connecticut)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Connecticut)

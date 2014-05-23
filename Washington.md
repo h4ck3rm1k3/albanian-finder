@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Washington)
 * [Simaku](https://www.whitepages.com/name/Simaku/Washington)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Washington)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Washington)
 * [Sopa](https://www.whitepages.com/name/Sopa/Washington)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Washington)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Washington)

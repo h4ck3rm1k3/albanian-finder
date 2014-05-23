@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/South-Dakota)
 * [Simaku](https://www.whitepages.com/name/Simaku/South-Dakota)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/South-Dakota)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/South-Dakota)
 * [Sopa](https://www.whitepages.com/name/Sopa/South-Dakota)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/South-Dakota)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/South-Dakota)

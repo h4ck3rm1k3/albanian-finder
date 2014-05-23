@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Wisconsin)
 * [Simaku](https://www.whitepages.com/name/Simaku/Wisconsin)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Wisconsin)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Wisconsin)
 * [Sopa](https://www.whitepages.com/name/Sopa/Wisconsin)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Wisconsin)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Wisconsin)

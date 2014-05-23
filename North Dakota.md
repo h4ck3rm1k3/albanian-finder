@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/North-Dakota)
 * [Simaku](https://www.whitepages.com/name/Simaku/North-Dakota)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/North-Dakota)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/North-Dakota)
 * [Sopa](https://www.whitepages.com/name/Sopa/North-Dakota)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/North-Dakota)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/North-Dakota)

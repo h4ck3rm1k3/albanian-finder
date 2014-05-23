@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Idaho)
 * [Simaku](https://www.whitepages.com/name/Simaku/Idaho)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Idaho)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Idaho)
 * [Sopa](https://www.whitepages.com/name/Sopa/Idaho)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Idaho)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Idaho)

@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Kentucky)
 * [Simaku](https://www.whitepages.com/name/Simaku/Kentucky)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Kentucky)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Kentucky)
 * [Sopa](https://www.whitepages.com/name/Sopa/Kentucky)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Kentucky)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Kentucky)

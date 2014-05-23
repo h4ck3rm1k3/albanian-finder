@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Rhode-Island)
 * [Simaku](https://www.whitepages.com/name/Simaku/Rhode-Island)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Rhode-Island)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Rhode-Island)
 * [Sopa](https://www.whitepages.com/name/Sopa/Rhode-Island)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Rhode-Island)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Rhode-Island)

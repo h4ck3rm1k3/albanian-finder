@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Arkansas)
 * [Simaku](https://www.whitepages.com/name/Simaku/Arkansas)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Arkansas)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Arkansas)
 * [Sopa](https://www.whitepages.com/name/Sopa/Arkansas)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Arkansas)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Arkansas)

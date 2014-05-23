@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Vermont)
 * [Simaku](https://www.whitepages.com/name/Simaku/Vermont)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Vermont)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Vermont)
 * [Sopa](https://www.whitepages.com/name/Sopa/Vermont)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Vermont)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Vermont)

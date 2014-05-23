@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Louisiana)
 * [Simaku](https://www.whitepages.com/name/Simaku/Louisiana)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Louisiana)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Louisiana)
 * [Sopa](https://www.whitepages.com/name/Sopa/Louisiana)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Louisiana)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Louisiana)

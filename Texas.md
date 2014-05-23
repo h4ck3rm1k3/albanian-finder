@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Texas)
 * [Simaku](https://www.whitepages.com/name/Simaku/Texas)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Texas)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Texas)
 * [Sopa](https://www.whitepages.com/name/Sopa/Texas)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Texas)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Texas)

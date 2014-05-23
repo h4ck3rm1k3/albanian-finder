@@ -217,6 +217,7 @@
 * [Siliqi](https://www.whitepages.com/name/Siliqi/Minnesota)
 * [Simaku](https://www.whitepages.com/name/Simaku/Minnesota)
 * [Smajlaj](https://www.whitepages.com/name/Smajlaj/Minnesota)
+* [Selimaj](https://www.whitepages.com/name/Selimaj/Minnesota)
 * [Sopa](https://www.whitepages.com/name/Sopa/Minnesota)
 * [Strakosha](https://www.whitepages.com/name/Strakosha/Minnesota)
 * [Sulejmani](https://www.whitepages.com/name/Sulejmani/Minnesota)

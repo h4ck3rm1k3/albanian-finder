@@ -1,4 +1,4 @@
-==Alabama==
+# Alabama
 * [Agani](https://www.whitepages.com/name/Agani/Alabama)
 * [Ahmetaj](https://www.whitepages.com/name/Ahmetaj/Alabama)
 * [Ahmeti](https://www.whitepages.com/name/Ahmeti/Alabama)

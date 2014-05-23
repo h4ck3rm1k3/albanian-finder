@@ -1,4 +1,4 @@
-==Wyoming==
+# Wyoming
 * [Agani](https://www.whitepages.com/name/Agani/Wyoming)
 * [Ahmetaj](https://www.whitepages.com/name/Ahmetaj/Wyoming)
 * [Ahmeti](https://www.whitepages.com/name/Ahmeti/Wyoming)

@@ -1,5 +1,22 @@
 #!/usr/bin/env python
 # -*- coding: utf-8 -*-
+"""
+Sources :
+
+Names:
+http://meetmylastname.com/prd/articles/65/albanian-surnames/
+https://answers.yahoo.com/question/index?qid=20100714212648AAh0Sl4
+
+First Names:
+http://www.aboutnames.ch/albanian.htm
+
+Flag:
+https://commons.wikimedia.org/wiki/File:Flag_of_Albania.svg
+
+List of States:
+http://state.1keydata.com/
+
+"""
 i = open("README.md", "w")
 i.write("""
 albanian-finder

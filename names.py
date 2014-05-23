@@ -2,7 +2,7 @@
 # -*- coding: utf-8 -*-
 i = open("index.html", "w")
 i.write( "<h1>Albanian Name Finder</h1>")
-i.write( "<img src=200px-Flag_of_Albania.svg.png/>")
+i.write( "<img src='Flag_of_Albania.png'/>")
 i.write( "<p>Click on a state. You will get a list of names, each one will open a search on the whitepages. Exact matches will display first.</p>")
 for s in ('Alabama','Alaska','Arizona','Arkansas','California','Colorado','Connecticut','Delaware','Florida','Georgia','Hawaii','Idaho','Illinois','Indiana','Iowa','Kansas','Kentucky','Louisiana','Maine','Maryland','Massachusetts','Michigan','Minnesota','Mississippi','Missouri','Montana','Nebraska','Nevada','New Hampshire','New Jersey','New Mexico','New York','North Carolina','North Dakota','Ohio','Oklahoma','Oregon','Pennsylvania','Rhode Island','South Carolina','South Dakota','Tennessee','Texas','Utah','Vermont','Virginia','Washington','West Virginia','Wisconsin','Wyoming') :
     sfile = "%s.html" %s

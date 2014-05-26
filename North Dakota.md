@@ -34,6 +34,7 @@
 * [Budo](https://www.whitepages.com/name/Budo/North-Dakota)
 * [Bufi](https://www.whitepages.com/name/Bufi/North-Dakota)
 * [Bunjaku](https://www.whitepages.com/name/Bunjaku/North-Dakota)
+* [Bukevale](https://www.whitepages.com/name/Bukevale/North-Dakota)
 * [Bushaj](https://www.whitepages.com/name/Bushaj/North-Dakota)
 * [Bushati](https://www.whitepages.com/name/Bushati/North-Dakota)
 * [Buzoku](https://www.whitepages.com/name/Buzoku/North-Dakota)

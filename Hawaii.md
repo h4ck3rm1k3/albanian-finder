@@ -34,6 +34,7 @@
 * [Budo](https://www.whitepages.com/name/Budo/Hawaii)
 * [Bufi](https://www.whitepages.com/name/Bufi/Hawaii)
 * [Bunjaku](https://www.whitepages.com/name/Bunjaku/Hawaii)
+* [Bukevale](https://www.whitepages.com/name/Bukevale/Hawaii)
 * [Bushaj](https://www.whitepages.com/name/Bushaj/Hawaii)
 * [Bushati](https://www.whitepages.com/name/Bushati/Hawaii)
 * [Buzoku](https://www.whitepages.com/name/Buzoku/Hawaii)

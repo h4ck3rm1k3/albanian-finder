@@ -34,6 +34,7 @@
 * [Budo](https://www.whitepages.com/name/Budo/Georgia)
 * [Bufi](https://www.whitepages.com/name/Bufi/Georgia)
 * [Bunjaku](https://www.whitepages.com/name/Bunjaku/Georgia)
+* [Bukevale](https://www.whitepages.com/name/Bukevale/Georgia)
 * [Bushaj](https://www.whitepages.com/name/Bushaj/Georgia)
 * [Bushati](https://www.whitepages.com/name/Bushati/Georgia)
 * [Buzoku](https://www.whitepages.com/name/Buzoku/Georgia)

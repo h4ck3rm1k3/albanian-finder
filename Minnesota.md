@@ -34,6 +34,7 @@
 * [Budo](https://www.whitepages.com/name/Budo/Minnesota)
 * [Bufi](https://www.whitepages.com/name/Bufi/Minnesota)
 * [Bunjaku](https://www.whitepages.com/name/Bunjaku/Minnesota)
+* [Bukevale](https://www.whitepages.com/name/Bukevale/Minnesota)
 * [Bushaj](https://www.whitepages.com/name/Bushaj/Minnesota)
 * [Bushati](https://www.whitepages.com/name/Bushati/Minnesota)
 * [Buzoku](https://www.whitepages.com/name/Buzoku/Minnesota)

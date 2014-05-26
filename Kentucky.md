@@ -34,6 +34,7 @@
 * [Budo](https://www.whitepages.com/name/Budo/Kentucky)
 * [Bufi](https://www.whitepages.com/name/Bufi/Kentucky)
 * [Bunjaku](https://www.whitepages.com/name/Bunjaku/Kentucky)
+* [Bukevale](https://www.whitepages.com/name/Bukevale/Kentucky)
 * [Bushaj](https://www.whitepages.com/name/Bushaj/Kentucky)
 * [Bushati](https://www.whitepages.com/name/Bushati/Kentucky)
 * [Buzoku](https://www.whitepages.com/name/Buzoku/Kentucky)

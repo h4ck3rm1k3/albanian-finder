@@ -34,6 +34,7 @@
 * [Budo](https://www.whitepages.com/name/Budo/Connecticut)
 * [Bufi](https://www.whitepages.com/name/Bufi/Connecticut)
 * [Bunjaku](https://www.whitepages.com/name/Bunjaku/Connecticut)
+* [Bukevale](https://www.whitepages.com/name/Bukevale/Connecticut)
 * [Bushaj](https://www.whitepages.com/name/Bushaj/Connecticut)
 * [Bushati](https://www.whitepages.com/name/Bushati/Connecticut)
 * [Buzoku](https://www.whitepages.com/name/Buzoku/Connecticut)

@@ -34,6 +34,7 @@
 * [Budo](https://www.whitepages.com/name/Budo/Oregon)
 * [Bufi](https://www.whitepages.com/name/Bufi/Oregon)
 * [Bunjaku](https://www.whitepages.com/name/Bunjaku/Oregon)
+* [Bukevale](https://www.whitepages.com/name/Bukevale/Oregon)
 * [Bushaj](https://www.whitepages.com/name/Bushaj/Oregon)
 * [Bushati](https://www.whitepages.com/name/Bushati/Oregon)
 * [Buzoku](https://www.whitepages.com/name/Buzoku/Oregon)

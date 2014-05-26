@@ -34,6 +34,7 @@
 * [Budo](https://www.whitepages.com/name/Budo/Kansas)
 * [Bufi](https://www.whitepages.com/name/Bufi/Kansas)
 * [Bunjaku](https://www.whitepages.com/name/Bunjaku/Kansas)
+* [Bukevale](https://www.whitepages.com/name/Bukevale/Kansas)
 * [Bushaj](https://www.whitepages.com/name/Bushaj/Kansas)
 * [Bushati](https://www.whitepages.com/name/Bushati/Kansas)
 * [Buzoku](https://www.whitepages.com/name/Buzoku/Kansas)

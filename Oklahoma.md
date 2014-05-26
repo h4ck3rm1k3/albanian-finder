@@ -34,6 +34,7 @@
 * [Budo](https://www.whitepages.com/name/Budo/Oklahoma)
 * [Bufi](https://www.whitepages.com/name/Bufi/Oklahoma)
 * [Bunjaku](https://www.whitepages.com/name/Bunjaku/Oklahoma)
+* [Bukevale](https://www.whitepages.com/name/Bukevale/Oklahoma)
 * [Bushaj](https://www.whitepages.com/name/Bushaj/Oklahoma)
 * [Bushati](https://www.whitepages.com/name/Bushati/Oklahoma)
 * [Buzoku](https://www.whitepages.com/name/Buzoku/Oklahoma)

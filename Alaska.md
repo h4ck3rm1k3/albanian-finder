@@ -34,6 +34,7 @@
 * [Budo](https://www.whitepages.com/name/Budo/Alaska)
 * [Bufi](https://www.whitepages.com/name/Bufi/Alaska)
 * [Bunjaku](https://www.whitepages.com/name/Bunjaku/Alaska)
+* [Bukevale](https://www.whitepages.com/name/Bukevale/Alaska)
 * [Bushaj](https://www.whitepages.com/name/Bushaj/Alaska)
 * [Bushati](https://www.whitepages.com/name/Bushati/Alaska)
 * [Buzoku](https://www.whitepages.com/name/Buzoku/Alaska)

@@ -34,6 +34,7 @@
 * [Budo](https://www.whitepages.com/name/Budo/Rhode-Island)
 * [Bufi](https://www.whitepages.com/name/Bufi/Rhode-Island)
 * [Bunjaku](https://www.whitepages.com/name/Bunjaku/Rhode-Island)
+* [Bukevale](https://www.whitepages.com/name/Bukevale/Rhode-Island)
 * [Bushaj](https://www.whitepages.com/name/Bushaj/Rhode-Island)
 * [Bushati](https://www.whitepages.com/name/Bushati/Rhode-Island)
 * [Buzoku](https://www.whitepages.com/name/Buzoku/Rhode-Island)

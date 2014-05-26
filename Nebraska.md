@@ -34,6 +34,7 @@
 * [Budo](https://www.whitepages.com/name/Budo/Nebraska)
 * [Bufi](https://www.whitepages.com/name/Bufi/Nebraska)
 * [Bunjaku](https://www.whitepages.com/name/Bunjaku/Nebraska)
+* [Bukevale](https://www.whitepages.com/name/Bukevale/Nebraska)
 * [Bushaj](https://www.whitepages.com/name/Bushaj/Nebraska)
 * [Bushati](https://www.whitepages.com/name/Bushati/Nebraska)
 * [Buzoku](https://www.whitepages.com/name/Buzoku/Nebraska)

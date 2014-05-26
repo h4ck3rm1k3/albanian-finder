@@ -34,6 +34,7 @@
 * [Budo](https://www.whitepages.com/name/Budo/Wyoming)
 * [Bufi](https://www.whitepages.com/name/Bufi/Wyoming)
 * [Bunjaku](https://www.whitepages.com/name/Bunjaku/Wyoming)
+* [Bukevale](https://www.whitepages.com/name/Bukevale/Wyoming)
 * [Bushaj](https://www.whitepages.com/name/Bushaj/Wyoming)
 * [Bushati](https://www.whitepages.com/name/Bushati/Wyoming)
 * [Buzoku](https://www.whitepages.com/name/Buzoku/Wyoming)

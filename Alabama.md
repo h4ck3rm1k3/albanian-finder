@@ -34,6 +34,7 @@
 * [Budo](https://www.whitepages.com/name/Budo/Alabama)
 * [Bufi](https://www.whitepages.com/name/Bufi/Alabama)
 * [Bunjaku](https://www.whitepages.com/name/Bunjaku/Alabama)
+* [Bukevale](https://www.whitepages.com/name/Bukevale/Alabama)
 * [Bushaj](https://www.whitepages.com/name/Bushaj/Alabama)
 * [Bushati](https://www.whitepages.com/name/Bushati/Alabama)
 * [Buzoku](https://www.whitepages.com/name/Buzoku/Alabama)

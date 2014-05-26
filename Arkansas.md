@@ -34,6 +34,7 @@
 * [Budo](https://www.whitepages.com/name/Budo/Arkansas)
 * [Bufi](https://www.whitepages.com/name/Bufi/Arkansas)
 * [Bunjaku](https://www.whitepages.com/name/Bunjaku/Arkansas)
+* [Bukevale](https://www.whitepages.com/name/Bukevale/Arkansas)
 * [Bushaj](https://www.whitepages.com/name/Bushaj/Arkansas)
 * [Bushati](https://www.whitepages.com/name/Bushati/Arkansas)
 * [Buzoku](https://www.whitepages.com/name/Buzoku/Arkansas)
